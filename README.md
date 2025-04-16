@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me 
 - 😄 Pronouns: 
-- ⚡ Fun fact: gosto de aprender coisas novas 
+- ⚡ Fun fact: tenho mais de 5k horas de Rocket league 
 
 <!---
 BruninReiDelas1212/BruninReiDelas1212 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
